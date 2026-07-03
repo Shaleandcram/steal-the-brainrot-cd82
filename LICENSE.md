@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with secure steal the brainrot base Scripts, the #1 Script. Includes anti-ban and one-hit kill
 
 
 
